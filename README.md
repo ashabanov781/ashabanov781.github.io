@@ -1,6 +1,7 @@
 # ALeksey Shabanov  
 
 ![IMG_0068](https://user-images.githubusercontent.com/131955832/235059752-fb9a0f3c-d16f-4dfb-a0dc-321a8bfb765a.JPG)
+
 *Шабанов	Алексей	Алексеевич*
 8 августа 1988 года	
 г. Москва

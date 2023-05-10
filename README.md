@@ -1,6 +1,7 @@
 # Aleksey Shabanov  
 
-![IMG_0068](https://user-images.githubusercontent.com/131955832/235059752-fb9a0f3c-d16f-4dfb-a0dc-321a8bfb765a.JPG)
+![IMG_0068](![IMG_0326](https://github.com/ashabanov781/ashabanov781.github.io/assets/131955832/55ba4f57-1fc0-4ff7-906f-a6bc859d5d11)
+)
 
 **Шабанов	Алексей	Алексеевич**
 8 августа 1988 года	
